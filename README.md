@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Im Ju!
 This is my GitHub, and im currently working on a new game, that is not comming soon jeje. Im also good at making pages, i made this one (is in swedish): https://Resultatet.meganijuso.repl.co
 
 ### Cool Facts:
