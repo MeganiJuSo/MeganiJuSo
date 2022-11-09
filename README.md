@@ -5,5 +5,5 @@ This is my GitHub, and im currently working on a new game, that is not comming s
 
 - 🌱 I’m currently learning JS and how do i use GitHub, oh by the way im learning everything in platzi
 - 💬 Ask me about games like AC and Roblox and i will make world's longest conversation
-- 📫 I live in sweden
-- ⚡ Fun fact: I play Minecraft and ACNH, i know about geography, my fort are the presentations and i just won on solitare for win 11 (klondike)
+- 📫 Reach me at Twitter as @MeganiJuSo
+- ⚡ Fun fact: I can complete games easy as it is was a webpage
